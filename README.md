@@ -1,1 +1,1 @@
-[Resume](/Resume (2).pdf)
+[Resume](/Resume2.pdf)
